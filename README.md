@@ -1,0 +1,2 @@
+# gabut
+judi haram
